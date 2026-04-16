@@ -1,19 +1,22 @@
 Matar Paneer
 ============
 
+https://www.youtube.com/watch?v=gOlTIcTi9Mo
+
 * 1 large onion or 3 small onions, cut into half moons
-* 400 g paneer
+* 400 g paneer, cut into cubes
 * handful of cashews (50 g?), soaked in hot water for 10 mins
 * 2 bay leaves
 * 1 stick of cinnamon
+* 1 tsp cumin
 * 3 pods of cardamom
 * 1 Tbsp ginger garlic paste
 * 1 tsp kashmiri red chili powder
 * 2 tomatoes, blended
-* 1 tsp red chili powder (mild)
+* 1 tsp sweet red chili powder
 * 1.5 tsp coriander powder (or blend 2 tsp fresh coriander seeds)
 * 0.5 tsp turmeric powder
-* 1 cup peas
+* 1 cup fresh green peas
 * 2 tsp salt
 * 2 green chilies
 * 1 tsp fenugreek leaves (kasuri methi)
