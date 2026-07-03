@@ -12,7 +12,6 @@ Recipe
 
 Marinate 500 g boneless chicken with (all spices powdered)
 
-+ 1 Tbsp ginger garlic paste
 + 1 tsp salt
 + 1 tsp kashmiri red chilli
 + 1 tsp dhania
@@ -20,9 +19,12 @@ Marinate 500 g boneless chicken with (all spices powdered)
 + 0.5 tsp haldi
 + 1 tsp garam masala
 + 1 tsp zeera
-+ juice of 0.5 lemon (those tiny Indian ones)
++ 1 tsp anatto (Vilem's addition)
++ 1 pinch saffron (Vilem's addition)
 + 1/4 cup greek joghurt
 + 2 tsp oil
++ juice of 0.5 lemon (those tiny Indian ones)
++ 1 Tbsp ginger garlic paste
 
 place some embers on a piece of aluminium foil on top, put 1 tsp ghee over and cover for 15-20 mins.
 
