@@ -15,6 +15,7 @@ a bit of olive oil for the counter
 Put about half of water in stand mixer. Add all the salt to the remaining water and let it dissolve.
 Dissolve fresh yeast in water in stand mixer. Add about half the flour.
 Knead.
+
 Add the salt water now and add in the remaining flour.
 Knead for 5-10 mins.
 
