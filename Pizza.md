@@ -8,7 +8,7 @@ Dough
 
 1 kg high-protein flour (00)
 640 g water
-5 g fresh yeast (or 2.5 g dried yeast, but it's not as good)
+3 g fresh yeast (or 1.5 g dried yeast, but it's not as good)
 32 g salt
 a bit of olive oil for the counter
 
@@ -17,13 +17,11 @@ Dissolve fresh yeast in water in stand mixer. Add about half the flour.
 Knead.
 
 Add the salt water now and add in the remaining flour.
-Knead for 5-10 mins.
+Knead for 15 mins.
 
-Let rest for 30 mins, covered, in the stand mixer bowl, without the kneading hook.
+Pop into a container and let it proof in the fridge for 24h.
 
-Remove onto an oiled kitchen counter and knead into a ball. Separate into 8 balls.
-
-Let them rise (covered) for about 2 hours @ 25°C. Alternatively, in the fridge for up to 48 hours. Remove from fridge 1-2 hours before baking.
+Make 6 balls and let them rise for a few hours before baking.
 
 
 To make 8 Pizzas

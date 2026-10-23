@@ -1,7 +1,7 @@
 Tarte à la mirabelle
 ====================
 
-source: Raymond
+source: Raymond Broussal
 
 500g de farine
 250g de beurre salé
